@@ -1,1 +1,1 @@
-Hi! I am Kamil Berkay, I am a sophomore at Bilkent University Computer Engineering. 
+Hi! I am Kamil Berkay, I am a Sophomore Computer Science student Bilkent University.
